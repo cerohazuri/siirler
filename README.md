@@ -103,3 +103,67 @@ Ein Held mag kommen, mit Wort und Tat,
 zerreißt die Fesseln, entflieht der Saat.
 Doch bis dahin trägt die Zeit ihr Gewicht,
 und wir, wir warten – auf’s befreiende Licht.
+
+
+[INTRO – gesprochen, trocken]
+Langsam… doch gewiss.
+
+[STROPHE 1 – tief, rhythmisch]
+Langsam, doch gewiss, zieht der Zwang seine Kreise,
+wie ein Netz, das uns hält—auf leise Weise.
+Einst war’s die Münze, dann kam das Blatt,
+Karte, Handy—Freiheit wird matt.
+
+[PRE-CHORUS – kurze Zeilen, Spannung]
+Stück um Stück, Tropfen im Meer,
+schwindet das, was selbstverständlich wär.
+Stimmen lenken, Wahrheit verdrehen—
+wir sollen nur folgen, wir sollen nur gehen.
+
+[CHORUS – marschierend, chantbar]
+Hier kommt die Dunkelheit—
+schwarz und schwer.
+Hier kommt die Dunkelheit—
+immer mehr.
+Hier kommt die Dunkelheit—
+und keiner schreit.
+Wir zählen die Schritte
+in endloser Zeit.
+
+[STROPHE 2]
+Mit jedem Tag, der uns älter macht,
+wächst der Missmut in düstrer Nacht.
+Was einst offen war, wird eng gemacht,
+die Macht regiert mit stiller Wacht.
+
+[PRE-CHORUS 2]
+Doch schleicht sich die Zeit und bringt neues Leben,
+die Jungen gewöhnen sich, still ergeben.
+Was uns bedrückt, wird für sie zur Norm,
+bis auch sie sehen: das ist die Form.
+
+[BRIDGE – Fragen, build-up]
+Wenn die Stunde den Mut gebiert,
+ein Wort, ein Funke, der Dämme ziert—
+wer wird es sein, der das Schweigen bricht?
+Wer hebt den Blick, wenn alles dicht?
+
+[BREAKDOWN – sehr mechanisch, minimal]
+Ein Held mag kommen, mit Wort und Tat,
+zerreißt die Fesseln, nimmt seinen Pfad.
+Doch bis dahin trägt die Zeit ihr Gewicht—
+und wir… wir warten… nicht.
+
+[FINAL CHORUS – doppelt, größer]
+Hier kommt die Dunkelheit—
+schwarz und schwer.
+Hier kommt die Dunkelheit—
+immer mehr.
+Hier kommt die Dunkelheit—
+und keiner schreit.
+Wir zählen die Schritte
+in endloser Zeit.
+
+[OUTRO – gesprochen]
+Langsam… doch gewiss.
+Doch nicht für immer.
