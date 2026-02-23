@@ -74,3 +74,32 @@ frei zu atmen, frei zu sein,
 solang du keinem andern schadest,
 Mensch und Tier—alle gemeint.
 
+Langsam, doch gewiss, zieht der Zwang seine Kreise,
+wie ein Netz, das uns hält in verborgener Weise.
+Einst war’s die Münze, dann kam das Blatt,
+die Karte, das Handy – der Freiheit Verrat.
+
+Stück um Stück, wie Tropfen im Meer,
+schwindet, was einst uns so selbstverständlich war.
+Die Freiheit ein Traum, auf Papier nur bestehend,
+lenken uns Stimmen, die Wahrheit verdrehend.
+
+Mit jedem Tag, der uns älter macht,
+wächst der Missmut in düstrer Nacht.
+Denn was einst offen, wird enger gemacht,
+und die Macht regiert mit stiller Wacht.
+
+Doch schleicht sich die Zeit und bringt neues Leben,
+die Jungen gewöhnen sich, still ergeben.
+Was uns bedrückt, wird für sie zur Norm,
+bis auch sie erkennen des Zwanges Form.
+
+Dann, wenn die Stunde den Mut gebiert,
+ein Wort, ein Funke die Dämme ziert,
+wer wird es sein, der das Schweigen bricht?
+Wer hebt den Blick ins befreiende Licht?
+
+Ein Held mag kommen, mit Wort und Tat,
+zerreißt die Fesseln, entflieht der Saat.
+Doch bis dahin trägt die Zeit ihr Gewicht,
+und wir, wir warten – auf’s befreiende Licht.
